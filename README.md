@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on school essays
 - 📫 How to reach me nicoly.paulista.silva@escola.pr.gov.br
 - 😄 Pronouns: she/her
-![https://tenor.com/pt-BR/view/chapell-roan-hot-to-go-singer-music-video-chapell-gif-11107290725719138358]
+![]https://tenor.com/pt-BR/view/chapell-roan-hot-to-go-singer-music-video-chapell-gif-11107290725719138358
 .
 
 <!---
